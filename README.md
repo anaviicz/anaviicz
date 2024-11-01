@@ -1,6 +1,3 @@
-❤︎ estudante do colegio morelli
-➡︎ curitiba-pr
-❤︎ meu filme favorito:gente grande 
-14 anos 
-
-
+- ❤︎ estudante do colegio morelli
+- ➡︎ curitiba-pr
+- 14 anos 
